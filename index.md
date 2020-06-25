@@ -11,3 +11,7 @@ Seit Idefix’ Erscheinen sind die beiden nur selten voneinander getrennt.
 
 > WAU,WAU
 > Grrrrr
+
+Veröffentlicht ohne Änderung unter der CC-Lizenz, die auf der Webseite einsehbar ist: creativecommons.org/licenses/by/2.0/deed.de
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/a/aa/Asterix_wall_in_brussels.jpg" />
