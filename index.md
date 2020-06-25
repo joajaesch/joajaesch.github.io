@@ -8,3 +8,6 @@ Seit Idefix’ Erscheinen sind die beiden nur selten voneinander getrennt.
 * schlau
 * lieb und freundlich
 * wissbegierig
+
+> WAU,WAU
+> Grrrrr
